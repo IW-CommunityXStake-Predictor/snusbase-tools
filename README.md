@@ -14,6 +14,6 @@ Snusbase est un searcher de DB ultra puissant qui contient plus de 81% de la pop
 
 ## Contact Me
 
-﹒[Discord](https://discord.gg/fQXQZG5hvX)
+﹒[Discord](https://discord.gg/stakepredictor)
 ﹒[Telegram](https://t.me/IWCommunityDiscord)
 ﹒[Shop](https://iwcommunity.sellpass.io/)
